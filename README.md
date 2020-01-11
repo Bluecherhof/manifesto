@@ -1,13 +1,11 @@
 # manifesto
 A living document 
->In diesem Augenblick der Geschichte dürfen wir nichts persönlich nehmen.
->Am allerwenigsten uns selber.
->Sobald wir das tun, wird unser spirituelles Wachstum und die Reise unterbrochen.
+>And I say, see who is in there with you and celebrate. At this time in history, we are to take nothing personally, least of all ourselves. For the moment that we do, our spiritual growth and journey come to a halt.
 >
 >Die Zeit des einsamen Wolkfes ist vorüber.
 >Versammelt Euch!
->Verbannt das Wort 'Kampf' aus Eurem Wortschatz und aus Eurem Verhalten.
->Alles, was wir tun, muss in heiliger Weise geschehen und in Freude.
->Wir sind diejenigen, auf die wir gewartet haben.
+>The time of the lone wolf is over. Gather yourselves! Banish the word ’struggle’ from your attitude and your vocabulary. All that we do now must be done in a sacred manner and in celebration.
 >
->Die Rede der Hopi-Ältesten, Oraibi, Arizona, Hopi Nation - Sonntag, 2. Dezember 2001
+>We are the ones we’ve been waiting for.
+>
+>--Hopi Elders' Prophecy, June 8, 2000
