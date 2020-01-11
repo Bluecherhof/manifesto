@@ -1,6 +1,7 @@
 # manifesto
 A living document 
 >(...)
+>
 >And I say, see who is in there with you and celebrate. At this time in history, we are to take nothing personally, least of all ourselves. For the moment that we do, our spiritual growth and journey come to a halt.
 >
 >Die Zeit des einsamen Wolkfes ist vorüber.
