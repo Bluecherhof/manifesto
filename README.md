@@ -9,5 +9,5 @@ A living document
 >Verbannt das Wort 'Kampf' aus Eurem Wortschatz und aus Eurem Verhalten.
 >Alles, was wir tun, muss in heiliger Weise geschehen und in Freude.
 >Wir sind diejenigen, auf die wir gewartet haben.
-
-Die Rede der Hopi-Ältesten, Oraibi, Arizona, Hopi Nation - Sonntag, 2. Dezember 2001
+>
+>Die Rede der Hopi-Ältesten, Oraibi, Arizona, Hopi Nation - Sonntag, 2. Dezember 2001
