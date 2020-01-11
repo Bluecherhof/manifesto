@@ -1,0 +1,2 @@
+# manifesto
+A living document 
